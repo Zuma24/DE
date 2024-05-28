@@ -27,4 +27,7 @@ https://youtu.be/hyhLlO_Tr8g?si=49MCn4Y1AnkdR06Y
 
 zum:annazuma
 
+https://never.su
+Логин ibs
+Пароль freedmaks
 https://web.never.su/index.php
