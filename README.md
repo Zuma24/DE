@@ -31,3 +31,5 @@ https://never.su
 Логин ibs
 Пароль freedmaks
 https://web.never.su/index.php
+
+https://youtu.be/DMlAWjtqhwY?si=rS_5sAAZyrBkeCEe
