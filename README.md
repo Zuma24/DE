@@ -23,3 +23,8 @@ https://youtu.be/sDXCQpNd3gc?si=2_bKhLj2auCdeHOQ
 
 6
 https://youtu.be/hyhLlO_Tr8g?si=49MCn4Y1AnkdR06Y
+
+
+zum:annazuma
+
+https://web.never.su/index.php
